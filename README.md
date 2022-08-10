@@ -1,4 +1,4 @@
-### Hi, I'm Felipe Ferreira! 👋👋
+### Hello there, I'm Felipe Ferreira! 👋👋
 ## Thanks for dropping by, hope you find some of my work interesting.
 
 ## 📖  What I am currently learning / improving on
